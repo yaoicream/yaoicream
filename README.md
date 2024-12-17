@@ -1,1 +1,1 @@
-![Alt tag](https://files.catbox.moe/krklho.png)
+![Alt tag](https://files.catbox.moe/nqt5vk.png)
